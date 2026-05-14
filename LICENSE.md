@@ -1,4 +1,4 @@
-#  
+#  secure Scripts for plants vs brainrots offers the most advanced plants vs brainrots Script, with speed and fly. Perfect for dominating any match.
 
 
 
